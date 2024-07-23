@@ -1,1 +1,1 @@
-# https-gofundme.com
+# gofundme.com
